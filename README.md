@@ -95,4 +95,11 @@ Invest in High-Performing Segments such as Technology and Corporate customers.
 Track Returns and Complaints to improve product quality and customer satisfaction.
 
 
+<img width="720" height="1290" alt="Screenshot_20250705-112406~2" src="https://github.com/user-attachments/assets/43921f94-81e3-4449-b7fc-b06d403bbd09" />
+
+
+
+
+
+
 
